@@ -1,4 +1,4 @@
-Rami Abuhabah
-Hancock College Prep High School
+Rami Abuhabah  
+Hancock College Prep High School  
 
-Green Olives
+Green Olives  
