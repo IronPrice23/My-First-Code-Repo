@@ -1,4 +1,5 @@
-Rami Abuhabah  
-Hancock College Prep High School  
+Rami Abuhabah  Eugenie Alvares
+Hancock College Prep High School  Simpson Academy for Young Women
 
-Green Olives  
+Green Olives  Ice Cream
+
